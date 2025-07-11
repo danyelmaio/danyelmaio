@@ -1,6 +1,6 @@
 # 👨🏽‍💻 Danyel Maio Pereira
 
- Rio de Janeiro  
+Localidade: Rio de Janeiro  
 Contato: (21) 9 8068-9129  
 E-mail: [dmaiopereira@gmail.com](mailto:dmaiopereira@gmail.com)
 
